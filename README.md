@@ -1,2 +1,4 @@
 # ScratchCatLanka
-A description about this organization
+This "organization" is for group of freinds who code together and projects!!
+
+💻 🖥️ ⌨️ 😃
